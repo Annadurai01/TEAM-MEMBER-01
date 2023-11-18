@@ -10,6 +10,6 @@ SOCIAL MEDIA ADVERTISEMENT POSTER USING CANVA: https://drive.google.com/drive/fo
 
 EMAIL NEWSLETTER USING CANVA: https://drive.google.com/drive/folders/1PgrJRm-E_9qlU8RKA-eQ3qWQ1dOvFNK-?usp=drive_link
 
-PROJECT
+PROJECT: CREATE BRAND PROMO VIDEO USING CANVA 
 
 PROJECT LINK: https://drive.google.com/file/d/16ZFrOrL5y2hno6D8wQtNq755lXLmoQQo/view?usp=drive_link
