@@ -1,4 +1,4 @@
-# TEAM-MEMBER-01
+# TEAM-01
 
 BLOG LINK: https://shutterscopephotography.blogspot.com/2023/08/title-mastering-art-of-shutter-scoping.html
 
